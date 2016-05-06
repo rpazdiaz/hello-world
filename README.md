@@ -3,4 +3,4 @@
 learning github with all mistakes included 
 
 I like long walks on the beach with my dog charlie! 
-I do wwork from home but it is sometimes dull.
+I do work from home but it is sometimes dull.
